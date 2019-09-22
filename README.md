@@ -45,7 +45,7 @@ setny raz pocięte scenariusze drę
 je*ać ludzi, je*ać nas, pierdolony świat
 licząc na barkach zmierzchu każdy dzień
 znika świat a z nim wszelkie wady, znikam ja
-siłę daj bym mógł trwać nawet gdy nie będę to już ja
+siłę dam bym mógł trwać nawet gdy nie będę to już ja
 
 x
 
