@@ -19,7 +19,7 @@ https://www.youtube.com/watch?v=cEgyWS6hcu4
 licząc na barkach zmierzchu każdy dzień
 znika świat a z nim wszelkie wady, znikam ja
 siłę daj bym mógł trwać nawet gdy
-nawet gdy nie będę to ja, nawet gdy będę sam
+nawet gdy tu nie będę to ja, nawet gdy będę sam
 setny raz pocięte scenariusze drę
 je*ać ludzi, je*ać nas, je*ać świat
 licząc na barkach zmierzchu każdy dzień
@@ -40,12 +40,12 @@ zwrot na wieki oddalony                             (wiecznie)
 licząc na barkach zmierzchu każdy dzień
 znika świat a z nim wszelkie wady, znikam ja
 siłę daj bym mógł trwać nawet gdy
-nawet gadać nie będę, to nie ja, nawet gdy będę sam
-setny raz pocięte scenariusze drę
+nawet gadać tu nie będę, to nie ja, nawet gdy będę
+setny raz, pocięte scenariusze drę
 je*ać ludzi, je*ać nas, pierdolony świat (i ten świat)
 licząc na barkach zmierzchu każdy dzień
 znika świat a z nim wszelkie wady, znikam ja
-siłę dam bym mógł trwać nawet gdy nie będę to już ja
+siłę dam bym mógł trwać nawet gdy nie będę taki sam
 
 x
 
