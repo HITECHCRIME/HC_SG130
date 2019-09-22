@@ -31,7 +31,7 @@ nawet gdy sam setny raz pocięte scenariusze drę (typu)
 je*ać ludzi, je*ać nas i ten świat
 gdzie tu sens, po zmierzchu w każdy dzień
 znika trakt a z nim wszelkie ślady, znikam ja
-siłę daj bym mógł trwać nawet gdy nie będę taki sam
+siłę daj bym mógł trwać nawet gdy nie będę (już) taki sam
 
 ---
 
