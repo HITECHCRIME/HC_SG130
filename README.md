@@ -67,7 +67,7 @@ siłę dam bym mógł trwać
 nawet gdy nawet gadać tu nie będę, to nie ja, nawet gdy będę
 setny raz, pocięte scenariusze drę
 je*ać ludzi, je*ać nas i ten stan
-w mdłych otchłaniach zmierzchu 
+w sarkazmach się rozpierzchły 
 każdy dzień znika trakt 
 a z nim wszelkie ślady, znikam ja
 siłę dam bym mógł trwać 
