@@ -37,12 +37,13 @@ tak skłonnym ludzkie dać
 
 chociaż ty mi powiedz, 
 że w teorię zejdziesz skromnie,
-oczy do poziomu zbyt pochopnie
+zbyt pochopnie oczy do poziomu 
 wniosek niestety zbyt pokorny
 będą zawsze brać oddolnie
 zwrot na wieki oddalony
 szukaj swoich wcieleń 
-by dać im w ukojeni tlenu (wiecznie)
+by dać im w ukojeniu tlenu
+gustowny oddech i parę przyszłych wspomnień
 
 licząc na barkach zmierzchu każdy dzień
 znika świat a z nim wszelkie wady, znikam ja
