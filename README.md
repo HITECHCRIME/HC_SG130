@@ -54,8 +54,7 @@ chociaż ty mi powiedz,
 że tu w teorię zejdziesz skromnie,
 oczy do poziomu zbyt pochopnie
 wniosek niestety jest pokorny
-będą zawsze brać oddolnie
-
+będą zawsze brać (oddolnie)
 
 , znowu zooooobacz, 
 otwórz oczy
