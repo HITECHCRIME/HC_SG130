@@ -49,16 +49,29 @@ znika świat a z nim wszelkie wady, znikam ja
 siłę dam bym mógł trwać nawet gdy
 nawet gadać tu nie będę, to nie ja, nawet gdy będę
 setny raz, pocięte scenariusze drę
-je*ać ludzi, je*ać nas, pierdolony świat (i ten stan)
-w otchłaniach zmierzchu każdy dzień
+je*ać ludzi, je*ać nas i ten stan
+w mdłych otchłaniach zmierzchu każdy dzień
 znika trakt a z nim wszelkie ślady, znikam ja
-siłę dam bym mógł trwać nawet gdy nie będę to już ja (stan)
+siłę dam bym mógł trwać nawet gdy nie będę to już ja (stan) (nawet gdy dowali nam pierdolony świat)
 
 (gdy nie będę w STANie)
 znowu zobacz 
 otwórz oczy, na prawdę
 
-x
+licząc na barkach zmierzchu 
+każdy dzień znika świat 
+a z nim wszelkie wady, znikam ja
+
+siłę dam bym mógł trwać 
+nawet gdy nawet gadać tu nie będę, to nie ja, nawet gdy będę
+setny raz, pocięte scenariusze drę
+je*ać ludzi, je*ać nas i ten stan
+w mdłych otchłaniach zmierzchu 
+każdy dzień znika trakt 
+a z nim wszelkie ślady, znikam ja
+siłę dam bym mógł trwać 
+nawet gdy nie będę to już ja (stan) 
+(nawet gdy dowali nam pierdolony świat)
 
 x
 
