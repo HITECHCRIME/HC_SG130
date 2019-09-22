@@ -39,12 +39,12 @@ zwrot na wieki oddalony                             (wiecznie)
 
 licząc na barkach zmierzchu każdy dzień
 znika świat a z nim wszelkie wady, znikam ja
-siłę daj bym mógł trwać nawet gdy
+siłę dam bym mógł trwać nawet gdy
 nawet gadać tu nie będę, to nie ja, nawet gdy będę
 setny raz, pocięte scenariusze drę
-je*ać ludzi, je*ać nas, pierdolony świat (i ten świat)
-licząc na barkach zmierzchu każdy dzień
-znika świat a z nim wszelkie wady, znikam ja
+je*ać ludzi, je*ać nas, pierdolony świat (i ten stan)
+w otchłaniach zmierzchu każdy dzień
+znika trakt a z nim wszelkie ślady, znikam ja
 siłę dam bym mógł trwać nawet gdy nie będę taki sam
 
 x
