@@ -60,4 +60,6 @@ chociaż ty mi powiedz, że tu zejdziesz
 
 ## Notes
 
+BRAND MAKING. MAKING A MONUMENT TO THE FUTURE.
+
 ## Music Video
