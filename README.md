@@ -47,12 +47,17 @@ znikam ja
 siłę daj bym mógł trwać
 nawet gdy nie nie będę to już ja
 
-wpływowe mnogie brednie 
-wyższe opinie, piedestały
-taak skłonne teorie ludzkie
+wpływowe mnogie brednie w ład
+oczy w co raz wyższe piedestały
+tak skłonnym ludzkie dać
 chociaż ty mi powiedz, 
-że tu zejdziesz skromnie
-do poziomu, znowu zooooobacz, 
+że tu w teorię zejdziesz skromnie,
+oczy do poziomu zbyt pochopnie
+wniosek niestety jest pokorny
+będą zawsze brać oddolnie
+
+
+, znowu zooooobacz, 
 otwórz oczy
 
 
