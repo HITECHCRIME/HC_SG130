@@ -16,7 +16,6 @@ https://www.youtube.com/watch?v=cEgyWS6hcu4
 ## Lyrics
 
 ```
-PRIME VERSION
 licząc na barkach zmierzchu każdy dzień
 znika świat a z nim wszelkie wady, znikam ja
 siłę daj bym mógł trwać nawet gdy
@@ -25,41 +24,47 @@ setny raz pocięte scenariusze drę
 je*ać ludzi, je*ać nas, je*ać świat
 licząc na barkach zmierzchu każdy dzień
 znika świat a z nim wszelkie wady, znikam ja
-siłę daj bym mógł trwać nawet gdy nie będę to już ja (taki sam)
------
-
-licząc na barkach zmierzchu
-każdy dzień
-znika świat a z nim wszelkie wady
-znikam ja 
-
-siłę daj bym mógł trwać
-nawet gdy nie będę taki jak
-nawet gdy będę saaam
-setny raz pocięte scenariusze
-drę jebać ludzi, jebać nas
-jebać świat (ten pierdolony świat)
-licząc na barkach zmierzchu
-każdy dzień
-znika świat a z nim wszelkie wady
-znikam ja 
-
-siłę daj bym mógł trwać
-nawet gdy nie nie będę to już ja
+siłę daj bym mógł trwać nawet gdy nie będę to już ja
 
 wpływowe mnogie brednie w ład
 oczy w co raz wyższe piedestały
 tak skłonnym ludzkie dać
+
 chociaż ty mi powiedz, 
-że tu w teorię zejdziesz skromnie,
+że w teorię zejdziesz skromnie,
 oczy do poziomu zbyt pochopnie
 wniosek niestety jest pokorny
-będą zawsze brać (oddolnie)
+będą zawsze brać oddolnie
+zwrot na wieki oddalony                             (wiecznie)
 
-, znowu zooooobacz, 
+licząc na barkach zmierzchu każdy dzień
+znika świat a z nim wszelkie wady, znikam ja
+siłę daj bym mógł trwać nawet gdy
+nawet gadać nie będę, to nie ja, nawet gdy będę sam
+setny raz pocięte scenariusze drę
+je*ać ludzi, je*ać nas, pierdolony świat
+licząc na barkach zmierzchu każdy dzień
+znika świat a z nim wszelkie wady, znikam ja
+siłę daj bym mógł trwać nawet gdy nie będę to już ja
+
+x
+
+x
+
+x
+
+znowu zooooobacz 
 otwórz oczy
 
-
+licząc na barkach zmierzchu każdy dzień
+znika świat a z nim wszelkie wady, znikam ja
+siłę daj bym mógł trwać nawet gdy
+nawet gdy nie będę to ja, nawet gdy będę sam
+setny raz pocięte scenariusze drę
+je*ać ludzi, je*ać nas, je*ać świat
+licząc na barkach zmierzchu każdy dzień
+znika świat a z nim wszelkie wady, znikam ja
+siłę daj bym mógł trwać nawet gdy nie będę taki sam
 
 ```
 
