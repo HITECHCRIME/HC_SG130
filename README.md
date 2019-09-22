@@ -54,14 +54,16 @@ w otchłaniach zmierzchu każdy dzień
 znika trakt a z nim wszelkie ślady, znikam ja
 siłę dam bym mógł trwać nawet gdy nie będę to już ja (stan)
 
-x
+(gdy nie będę w STANie)
+znowu zobacz 
+otwórz oczy, na prawdę
 
 x
 
 x
 
-znowu zooooobacz 
-otwórz oczy
+x
+
 
 licząc na barkach zmierzchu każdy dzień
 znika świat a z nim wszelkie wady, znikam ja
