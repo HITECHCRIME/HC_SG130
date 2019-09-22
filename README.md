@@ -16,6 +16,25 @@ https://www.youtube.com/watch?v=cEgyWS6hcu4
 ## Lyrics
 
 ```
+licząc na barkach zmierzchu
+każdy dzień
+znika świat a z nim wszelkie wady
+znikam ja 
+
+siłę daj bym mógł trwać
+nawet gdy już nie będę ja
+nawet gdy będę sam
+setny raz pocięte scenariusze
+drę jebać ludzi, jebać nas
+jebać świat
+licząc na barkach zmierzchu
+każdy dzień
+znika świat a z nim wszelkie wady
+znikam ja 
+
+siłę daj bym mógł trwać
+nawet gdy już nie będę ja
+
 
 
 ```
