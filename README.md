@@ -16,7 +16,7 @@ https://www.youtube.com/watch?v=cEgyWS6hcu4
 ## Lyrics
 
 ```
-na barkach zmierzchu
+...na barkach zmierzchu
 w każdy dzień
 znika świat 
 a z nim wszelkie wady
@@ -35,11 +35,10 @@ siłę daj bym mógł trwać nawet gdy nie będę taki sam
 
 ---
 
-wpływowe mnogie brednie w ład
+wpływ na mnogie brednie w ład
 oczy w co raz wyższe piedestały
 tak skłonnym ludzkie dać
-
-chociaż ty mi powiedz, 
+ty mi powiedz, 
 że w teorię zejdziesz skromnie,
 zbyt pochopnie oczy do poziomu 
 wniosek niestety zbyt pokorny
@@ -72,10 +71,10 @@ licząc na barkach zmierzchu każdy dzień
 znika trakt a z nim wszelkie ślady, znikam ja
 siłę dam bym mógł trwać nawet gdy płoniemy
 gadać tu nie będę, to nie ja, nawet gdy będę
-setny raz, pocięte bestiariusze kłem
+setny raz, (pocięte) bestiariusze kłem
 
 je*ać ludzi, je*ać nas i ten stan
-w sarkazmach się rozpierzchły słowa - dzień, dzień
+w sarkazmach się rozpierzchły słowa - brzmień, dzień
 znika x a z nim wszelkie x, znikam ja
 siłę dam bym mógł trwać nawet gdy nie będę to już ja (stan) 
 (nawet gdy dowali nam pierdolony świat)
@@ -93,7 +92,6 @@ siłę dam bym mógł trwać
 nawet gdy nie będę to już ja (stan) 
 (nawet gdy dowali nam pierdolony świat)
 
-(dużo dam)
 x
 
 x
