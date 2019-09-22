@@ -20,12 +20,12 @@ PRIME VERSION
 licząc na barkach zmierzchu każdy dzień
 znika świat a z nim wszelkie wady, znikam ja
 siłę daj bym mógł trwać nawet gdy
-nawet gdy nie będę to ja, nawet gdy będę saaam
+nawet gdy nie będę to ja, nawet gdy będę sam
 setny raz pocięte scenariusze drę
 je*ać ludzi, je*ać nas, je*ać świat
 licząc na barkach zmierzchu każdy dzień
 znika świat a z nim wszelkie wady, znikam ja
-siłę daj bym mógł trwać nawet gdy nie będę to już ja
+siłę daj bym mógł trwać nawet gdy nie będę to już ja (taki sam)
 -----
 
 licząc na barkach zmierzchu
