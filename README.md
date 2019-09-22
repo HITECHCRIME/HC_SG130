@@ -22,6 +22,8 @@ znika świat
 a z nim wszelkie wady
 znikam ja
 
+---
+
 licząc na barkach zmierzchu każdy dzień
 znika świat a z nim wszelkie wady, znikam ja
 siłę daj bym mógł trwać, stresu dawać nie będę to nie ja
@@ -30,6 +32,88 @@ je*ać ludzi, je*ać nas i ten świat
 gdzie tu sens, po zmierzchu w każdy dzień
 znika trakt a z nim wszelkie ślady, znikam ja
 siłę daj bym mógł trwać nawet gdy nie będę taki sam
+
+---
+
+wpływowe mnogie brednie w ład
+oczy w co raz wyższe piedestały
+tak skłonnym ludzkie dać
+
+chociaż ty mi powiedz, 
+że w teorię zejdziesz skromnie,
+zbyt pochopnie oczy do poziomu 
+wniosek niestety zbyt pokorny
+będą zawsze brać oddolnie
+zwrot na wieki oddalony
+szukaj swoich wcieleń 
+by dać im w ukojeniu tlenu
+gustowny oddech i parę przyszłych wspomnień
+
+---
+
+licząc na barkach zmierzchu każdy dzień
+znika świat a z nim wszelkie wady, znikam ja
+siłę daj bym mógł trwać, stresu dawać nie będę to nie ja
+nawet gdy sam setny raz pocięte scenariusze drę (typu)
+je*ać ludzi, je*ać nas i ten świat
+gdzie tu sens, po zmierzchu w każdy dzień
+znika trakt a z nim wszelkie ślady, znikam ja
+siłę daj bym mógł trwać nawet gdy nie będę taki sam
+
+---
+
+licząc na barkach zmierzchu każdy dzień
+znika świat a z nim wszelkie wady, znikam ja
+znikam ja
+
+---
+
+licząc na barkach zmierzchu każdy dzień
+znika trakt a z nim wszelkie ślady, znikam ja
+siłę dam bym mógł trwać nawet gdy płoniemy
+gadać tu nie będę, to nie ja, nawet gdy będę
+setny raz, pocięte bestiariusze kłem
+
+je*ać ludzi, je*ać nas i ten stan
+w sarkazmach się rozpierzchły słowa - dzień, dzień
+znika x a z nim wszelkie x, znikam ja
+siłę dam bym mógł trwać nawet gdy nie będę to już ja (stan) 
+(nawet gdy dowali nam pierdolony świat)
+(gdy nie będę w STANie) znowu zobacz 
+otwórz oczy, na prawdę
+w mdłych otchłaniach zmierzchu każdy dzień
+
+siłę dam bym mógł trwać 
+nawet gdy nawet gadać tu nie będę, to nie ja, nawet gdy będę
+setny raz, pocięte scenariusze drę
+je*ać ludzi, je*ać nas i ten stan
+w sarkazmach się rozpierzchły słowa - dzień, znika trakt 
+a z nim wszelkie ślady, znikam ja
+siłę dam bym mógł trwać 
+nawet gdy nie będę to już ja (stan) 
+(nawet gdy dowali nam pierdolony świat)
+
+(dużo dam)
+x
+
+x
+
+
+licząc na barkach zmierzchu każdy dzień
+znika świat a z nim wszelkie wady, znikam ja
+siłę daj bym mógł trwać nawet gdy
+nawet gdy nie będę, to nie ja, nawet gdy będę sam
+setny raz pocięte scenariusze drę
+je*ać ludzi, je*ać nas, je*ać świat
+licząc na barkach zmierzchu każdy dzień
+znika świat a z nim wszelkie wady, znikam ja
+siłę daj bym mógł trwać nawet gdy nie będę taki sam
+
+
+
+
+
+OLDER VERSIONS_
 
 LICZAC NA BARKACH ZMIERZCHU KAŻDY DZIEŃ
 ZNIKA ŚWIAT A Z NIM WSZELKIE WADY, ZNIKAM JA
@@ -52,67 +136,7 @@ setny raz pocięte scenariusze drę
 je*ać ludzi, je*ać nas i ten świat
 w mdłych otchłaniach zmierzchu każdy dzień
 znika trakt a z nim wszelkie ślady, znikam ja
-siłę daj (dużo dam) bym mógł trwać nawet gdy nie będę taki sam
-
----
-
-wpływowe mnogie brednie w ład
-oczy w co raz wyższe piedestały
-tak skłonnym ludzkie dać
-
-chociaż ty mi powiedz, 
-że w teorię zejdziesz skromnie,
-zbyt pochopnie oczy do poziomu 
-wniosek niestety zbyt pokorny
-będą zawsze brać oddolnie
-zwrot na wieki oddalony
-szukaj swoich wcieleń 
-by dać im w ukojeniu tlenu
-gustowny oddech i parę przyszłych wspomnień
-
-licząc na barkach zmierzchu każdy dzień
-znika trakt a z nim wszelkie ślady, znikam ja
-siłę dam bym mógł trwać nawet gdy (płoniemy)
-nawet gadać tu nie będę, to nie ja, nawet gdy będę
-setny raz, pocięte scenariusze drę (bestiariusze kłem)
-je*ać ludzi, je*ać nas i ten stan
-w mdłych otchłaniach zmierzchu każdy dzień
-znika trakt a z nim wszelkie ślady, znikam ja
-siłę dam bym mógł trwać nawet gdy nie będę to już ja (stan) (nawet gdy dowali nam pierdolony świat)
-
-(gdy nie będę w STANie)
-znowu zobacz 
-otwórz oczy, na prawdę
-
-licząc na barkach zmierzchu 
-każdy dzień znika świat 
-a z nim wszelkie wady, znikam ja
-
-siłę dam bym mógł trwać 
-nawet gdy nawet gadać tu nie będę, to nie ja, nawet gdy będę
-setny raz, pocięte scenariusze drę
-je*ać ludzi, je*ać nas i ten stan
-w sarkazmach się rozpierzchły 
-każdy dzień znika trakt 
-a z nim wszelkie ślady, znikam ja
-siłę dam bym mógł trwać 
-nawet gdy nie będę to już ja (stan) 
-(nawet gdy dowali nam pierdolony świat)
-
-x
-
-x
-
-
-licząc na barkach zmierzchu każdy dzień
-znika świat a z nim wszelkie wady, znikam ja
-siłę daj bym mógł trwać nawet gdy
-nawet gdy nie będę, to nie ja, nawet gdy będę sam
-setny raz pocięte scenariusze drę
-je*ać ludzi, je*ać nas, je*ać świat
-licząc na barkach zmierzchu każdy dzień
-znika świat a z nim wszelkie wady, znikam ja
-siłę daj bym mógł trwać nawet gdy nie będę taki sam
+siłę daj  bym mógł trwać nawet gdy nie będę taki sam
 ```
 
 ## Lyrics Testing Ground
