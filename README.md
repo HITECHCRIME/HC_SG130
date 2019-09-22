@@ -16,15 +16,20 @@ https://www.youtube.com/watch?v=cEgyWS6hcu4
 ## Lyrics
 
 ```
+w każdy dzień
+znika świat 
+a z nim wszelkie wady
+znikam ja
+
 licząc na barkach zmierzchu każdy dzień
 znika świat a z nim wszelkie wady, znikam ja
 siłę daj bym mógł trwać nawet gdy
-nawet gdy tu nie będę to ja, nawet gdy będę sam
+nawet gdy tu nie będę, to nie ja, nawet gdy będę sam
 setny raz pocięte scenariusze drę
 je*ać ludzi, je*ać nas, je*ać świat
 licząc na barkach zmierzchu każdy dzień
 znika świat a z nim wszelkie wady, znikam ja
-siłę daj bym mógł trwać nawet gdy nie będę to już ja
+siłę daj bym mógł trwać nawet gdy nie będę taki sam
 
 wpływowe mnogie brednie w ład
 oczy w co raz wyższe piedestały
@@ -33,9 +38,11 @@ tak skłonnym ludzkie dać
 chociaż ty mi powiedz, 
 że w teorię zejdziesz skromnie,
 oczy do poziomu zbyt pochopnie
-wniosek niestety jest pokorny
+wniosek niestety zbyt pokorny
 będą zawsze brać oddolnie
-zwrot na wieki oddalony                             (wiecznie)
+zwrot na wieki oddalony
+szukaj swoich wcieleń 
+by dać im w ukojeni tlenu (wiecznie)
 
 licząc na barkach zmierzchu każdy dzień
 znika świat a z nim wszelkie wady, znikam ja
@@ -45,7 +52,7 @@ setny raz, pocięte scenariusze drę
 je*ać ludzi, je*ać nas, pierdolony świat (i ten stan)
 w otchłaniach zmierzchu każdy dzień
 znika trakt a z nim wszelkie ślady, znikam ja
-siłę dam bym mógł trwać nawet gdy nie będę taki sam
+siłę dam bym mógł trwać nawet gdy nie będę to już ja (stan)
 
 x
 
@@ -59,7 +66,7 @@ otwórz oczy
 licząc na barkach zmierzchu każdy dzień
 znika świat a z nim wszelkie wady, znikam ja
 siłę daj bym mógł trwać nawet gdy
-nawet gdy nie będę to ja, nawet gdy będę sam
+nawet gdy nie będę, to nie ja, nawet gdy będę sam
 setny raz pocięte scenariusze drę
 je*ać ludzi, je*ać nas, je*ać świat
 licząc na barkach zmierzchu każdy dzień
