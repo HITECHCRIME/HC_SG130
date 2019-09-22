@@ -88,7 +88,6 @@ je*ać ludzi, je*ać nas, je*ać świat
 licząc na barkach zmierzchu każdy dzień
 znika świat a z nim wszelkie wady, znikam ja
 siłę daj bym mógł trwać nawet gdy nie będę taki sam
-
 ```
 
 ## Lyrics Testing Ground
