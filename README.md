@@ -33,7 +33,7 @@ znika świat a z nim wszelkie wady
 znikam ja 
 
 siłę daj bym mógł trwać
-nawet gdy nie nie będę to ja
+nawet gdy nie nie będę to już ja
 
 taak skłonne teorie ludzkie
 wpływowe mnogie brednie 
