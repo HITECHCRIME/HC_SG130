@@ -31,6 +31,21 @@ licząc na barkach zmierzchu każdy dzień
 znika świat a z nim wszelkie wady, znikam ja
 siłę daj bym mógł trwać nawet gdy nie będę taki sam
 
+ALTERNATIVE_
+
+---
+licząc na barkach zmierzchu każdy dzień
+znika świat a z nim wszelkie wady, znikam ja
+siłę daj bym mógł trwać nawet gdy
+nawet gdy tu będę, to nie ja, nawet gdy będę sam
+setny raz pocięte scenariusze drę
+je*ać ludzi, je*ać nas i ten świat
+w mdłych otchłaniach zmierzchu każdy dzień
+znika trakt a z nim wszelkie ślady, znikam ja
+siłę daj (dużo dam) bym mógł trwać nawet gdy nie będę taki sam
+
+---
+
 wpływowe mnogie brednie w ład
 oczy w co raz wyższe piedestały
 tak skłonnym ludzkie dać
