@@ -42,7 +42,7 @@ znika świat a z nim wszelkie wady, znikam ja
 siłę daj bym mógł trwać nawet gdy
 nawet gadać nie będę, to nie ja, nawet gdy będę sam
 setny raz pocięte scenariusze drę
-je*ać ludzi, je*ać nas, pierdolony świat
+je*ać ludzi, je*ać nas, pierdolony świat (i ten świat)
 licząc na barkach zmierzchu każdy dzień
 znika świat a z nim wszelkie wady, znikam ja
 siłę dam bym mógł trwać nawet gdy nie będę to już ja
