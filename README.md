@@ -23,7 +23,7 @@ znikam ja
 
 siłę daj bym mógł trwać
 nawet gdy nie będę taki jak
-nawet gdy saaam
+nawet gdy będę saaam
 setny raz pocięte scenariusze
 drę jebać ludzi, jebać nas
 jebać świat (ten pierdolony świat)
@@ -35,10 +35,13 @@ znikam ja
 siłę daj bym mógł trwać
 nawet gdy nie nie będę to już ja
 
-taak skłonne teorie ludzkie
 wpływowe mnogie brednie 
-piedestały z opinii
-chociaż ty mi powiedz, że tu zejdziesz
+wyższe opinie, piedestały
+taak skłonne teorie ludzkie
+chociaż ty mi powiedz, 
+że tu zejdziesz skromnie
+do poziomu, znowu zooooobacz, 
+otwórz oczy
 
 
 
