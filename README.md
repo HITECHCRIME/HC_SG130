@@ -46,10 +46,10 @@ by dać im w ukojeniu tlenu
 gustowny oddech i parę przyszłych wspomnień
 
 licząc na barkach zmierzchu każdy dzień
-znika świat a z nim wszelkie wady, znikam ja
-siłę dam bym mógł trwać nawet gdy
+znika trakt a z nim wszelkie ślady, znikam ja
+siłę dam bym mógł trwać nawet gdy (płoniemy)
 nawet gadać tu nie będę, to nie ja, nawet gdy będę
-setny raz, pocięte scenariusze drę
+setny raz, pocięte scenariusze drę (bestiariusze kłem)
 je*ać ludzi, je*ać nas i ten stan
 w mdłych otchłaniach zmierzchu każdy dzień
 znika trakt a z nim wszelkie ślady, znikam ja
