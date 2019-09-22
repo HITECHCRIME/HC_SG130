@@ -25,7 +25,7 @@ znikam ja
 licząc na barkach zmierzchu każdy dzień
 znika świat a z nim wszelkie wady, znikam ja
 siłę daj bym mógł trwać, stresu dawać nie będę to nie ja
-nawet gdy sam setny raz pocięte scenariusze drę
+nawet gdy sam setny raz pocięte scenariusze drę (typu)
 je*ać ludzi, je*ać nas i ten świat
 gdzie tu sens, po zmierzchu w każdy dzień
 znika trakt a z nim wszelkie ślady, znikam ja
