@@ -35,8 +35,8 @@ znikam ja
 siłę daj bym mógł trwać
 nawet gdy nie nie będę to ja
 
-teorie ludzkie
-mnogie brednie
+taak skłonne teorie ludzkie
+wpływowe mnogie brednie 
 piedestały z opinii
 chociaż ty mi powiedz, że tu zejdziesz
 
