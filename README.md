@@ -66,3 +66,5 @@ otwórz oczy
 BRAND MAKING. MAKING A MONUMENT TO THE FUTURE.
 
 ## Music Video
+
+Stalking my past future selves. Every day is a different timeline. Vanishing them in style of Primer.
