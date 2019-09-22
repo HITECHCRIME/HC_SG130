@@ -22,7 +22,7 @@ znika świat a z nim wszelkie wady
 znikam ja 
 
 siłę daj bym mógł trwać
-nawet gdy już nie będę ja
+nawet gdy  (nie będę ja)
 nawet gdy będę sam
 setny raz pocięte scenariusze
 drę jebać ludzi, jebać nas
@@ -33,7 +33,12 @@ znika świat a z nim wszelkie wady
 znikam ja 
 
 siłę daj bym mógł trwać
-nawet gdy już nie będę ja
+nawet gdy nie nie będę to ja
+
+teorie ludzkie
+mnogie brednie
+piedestały z opinii
+chociaż ty mi powiedz, że tu zejdziesz
 
 
 
