@@ -1,6 +1,6 @@
 [cover] ![](57175019_319474918741616_8502199518755923887_n.jpg)
 
-# ARTIST_ TITLE
+# MOTHNODE_ 
 
 **Listen now:** 
 
@@ -26,7 +26,7 @@ nawet gdy nie będę taki jak
 nawet gdy saaam
 setny raz pocięte scenariusze
 drę jebać ludzi, jebać nas
-jebać świat
+jebać świat (ten pierdolony świat)
 licząc na barkach zmierzchu
 każdy dzień
 znika świat a z nim wszelkie wady
