@@ -16,6 +16,18 @@ https://www.youtube.com/watch?v=cEgyWS6hcu4
 ## Lyrics
 
 ```
+PRIME VERSION
+licząc na barkach zmierzchu każdy dzień
+znika świat a z nim wszelkie wady, znikam ja
+siłę daj bym mógł trwać nawet gdy
+nawet gdy nie będę to ja, nawet gdy będę saaam
+setny raz pocięte scenariusze drę
+je*ać ludzi, je*ać nas, je*ać świat
+licząc na barkach zmierzchu każdy dzień
+znika świat a z nim wszelkie wady, znikam ja
+siłę daj bym mógł trwać nawet gdy nie będę to już ja
+-----
+
 licząc na barkach zmierzchu
 każdy dzień
 znika świat a z nim wszelkie wady
