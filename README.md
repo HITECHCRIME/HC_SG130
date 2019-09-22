@@ -22,8 +22,8 @@ znika świat a z nim wszelkie wady
 znikam ja 
 
 siłę daj bym mógł trwać
-nawet gdy  (nie będę ja)
-nawet gdy będę sam
+nawet gdy nie będę taki jak
+nawet gdy saaam
 setny raz pocięte scenariusze
 drę jebać ludzi, jebać nas
 jebać świat
