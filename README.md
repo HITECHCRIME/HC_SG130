@@ -21,15 +21,15 @@ znika świat
 a z nim wszelkie wady
 znikam ja
 
-licząc na barkach zmierzchu każdy dzień
-znika świat a z nim wszelkie wady, znikam ja
-siłę daj bym mógł trwać nawet gdy
-nawet gdy tu nie będę, to nie ja, nawet gdy będę sam
-setny raz pocięte scenariusze drę
-je*ać ludzi, je*ać nas, je*ać świat
-licząc na barkach zmierzchu każdy dzień
-znika świat a z nim wszelkie wady, znikam ja
-siłę daj bym mógł trwać nawet gdy nie będę taki sam
+LICZAC NA BARKACH ZMIERZCHU KAŻDY DZIEŃ
+ZNIKA ŚWIAT A Z NIM WSZELKIE WADY, ZNIKAM JA
+SIŁĘ DAJ BYM MÓGŁ TRWAĆ 
+NAWET GADAĆ NIE BĘDĘ, to nie ja NAWET GDY SAM
+SETNY RAZ POCIĘTE SCENARIUSZE DRĘ
+JEBAĆ LUDZI, JEBAĆ NAS I TEN ŚWIAT
+W MDŁYCH ODCHŁANIACH ZMIERZCHU KAŻDY DZIEŃ
+znika trakt a z nim wszelkie ślady, ZNIKAM JA
+siłę daj bym mógł trwać NAWET GDY NIE BĘDĘ TAKI SAM
 
 ALTERNATIVE_
 
