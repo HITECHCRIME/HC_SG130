@@ -9,9 +9,9 @@
 Beat by Clover. Paid.
 https://www.youtube.com/watch?v=cEgyWS6hcu4
 
-**Title:** Zmierzch / **Featuring:**
+**Title:** Zmierzch / **Featuring:** MOTHNODE
 
-**Production:**  / **Lyrics:** 
+**Production:** Clover / **Lyrics:** MOTHNODE
 
 ## Lyrics
 
