@@ -96,7 +96,6 @@ x
 
 x
 
-
 licząc na barkach zmierzchu każdy dzień
 znika świat a z nim wszelkie wady, znikam ja
 siłę daj bym mógł trwać nawet gdy
@@ -107,10 +106,7 @@ licząc na barkach zmierzchu każdy dzień
 znika świat a z nim wszelkie wady, znikam ja
 siłę daj bym mógł trwać nawet gdy nie będę taki sam
 
-
-
-
-
+-------
 OLDER VERSIONS_
 
 LICZAC NA BARKACH ZMIERZCHU KAŻDY DZIEŃ
@@ -123,9 +119,8 @@ GDZIE TU SENS PO ZMIERZCHU KAŻDY DZIEŃ
 ZNIKA TRAKT A Z NIM WSZELKIE ŚLADY, ZNIKAM JA
 SIŁĘ DAJ BYM MÓGŁ TRWAĆ NAWET GDY NIE BĘDĘ TAKI SAM
 
-ALTERNATIVE_
-
 ---
+ALTERNATIVE_
 licząc na barkach zmierzchu każdy dzień
 znika świat a z nim wszelkie wady, znikam ja
 siłę daj bym mógł trwać nawet gdy
@@ -135,6 +130,7 @@ je*ać ludzi, je*ać nas i ten świat
 w mdłych otchłaniach zmierzchu każdy dzień
 znika trakt a z nim wszelkie ślady, znikam ja
 siłę daj  bym mógł trwać nawet gdy nie będę taki sam
+
 ```
 
 ## Lyrics Testing Ground
@@ -157,4 +153,4 @@ BRAND MAKING. MAKING A MONUMENT TO THE FUTURE.
 
 ## Music Video
 
-Stalking past (future) selves one has evolved from. Every day is a different timeline. Vanishing them in style of Primer.
+Zmierzch. Stalking past (future) selves one has evolved from. Every day is a different timeline. Vanishing them in style of Primer.
