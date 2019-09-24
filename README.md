@@ -31,7 +31,7 @@ nawet gdy SAM setny RAZ pocięte scenariusze DRĘ (typu)
 je*ać ludzi, je*ać NAS i ten świat
 gdzie tu sens po zmieeerzchu w każdy DZIEŃ
 znika TRAKT a z nim wszelkie ślady, znikam JA
-siłę DAJ bym mógł TRWAĆ nawet gdy nie będę (już) taki SAM
+siłę DAJ bym mógł TRWAĆ nawet gdy nie będę (nope - już) taki SAM
 
 ---
 
