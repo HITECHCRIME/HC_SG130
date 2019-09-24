@@ -6,7 +6,7 @@
 
 ## Project Data
 
-Beat by Clover. Paid.
+Beat by Clover (Paid.)
 https://www.youtube.com/watch?v=cEgyWS6hcu4
 
 **Title:** Zmierzch / **Featuring:** MOTHNODE
