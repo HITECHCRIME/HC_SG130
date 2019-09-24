@@ -101,8 +101,6 @@ nawet gdy nie będę to już ja (stan)
 (nawet gdy dowali nam pierdolony świat)
 
 x
-?
-x
 
 licząc na barkach zmierzchu każdy dzień
 znika świat a z nim wszelkie wady, znikam ja
@@ -116,7 +114,7 @@ siłę daj bym mógł trwać nawet gdy nie będę taki sam
 
 -------
 
-OLDER VERSIONS_
+OLDER VERSIONS_ (DO WE NEED THEM)
 
 LICZAC NA BARKACH ZMIERZCHU KAŻDY DZIEŃ
 ZNIKA ŚWIAT A Z NIM WSZELKIE WADY, ZNIKAM JA
