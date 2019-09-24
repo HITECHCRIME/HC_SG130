@@ -96,7 +96,7 @@ nawet gdy nie będę to już ja (stan)
 (nawet gdy dowali nam pierdolony świat)
 
 x
-
+?
 x
 
 licząc na barkach zmierzchu każdy dzień
