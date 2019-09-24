@@ -51,6 +51,8 @@ gustowny oddech i parę przyszłych wspomnień
 jebać  wasze  piedestały
 wolę stać stabilniej
 
+? HOW MANY CHORUSES? I THINK IT'S GONNA BE 2-3  (rather 2)
+
 ---
 
 licząc na barkach zmierzchu każdy dzień
