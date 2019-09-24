@@ -1,6 +1,6 @@
 [cover] ![](57175019_319474918741616_8502199518755923887_n.jpg)
 
-# MOTHNODE_ Zmierzch [Format Duszy]
+# MOTHNODE_ Zmierzch [Format Duszy] (Prod. Clover)
 
 **Listen now:** 
 
@@ -11,7 +11,7 @@ https://www.youtube.com/watch?v=cEgyWS6hcu4
 
 **Title:** Zmierzch / **Featuring:** MOTHNODE
 
-**Production:** Clover / **Lyrics:** MOTHNODE
+**Production:** prod. Clover / **Lyrics:** MOTHNODE
 
 ## Lyrics
 
@@ -49,8 +49,10 @@ szukaj swoich wcieleń
 by dać im w ukojeniu tlenu
 gustowny oddech i parę przyszłych wspomnień
 
+
 jebać  wasze  piedestały
 wolę stać stabilniej
+
 
 ? HOW MANY CHORUSES? I THINK IT'S GONNA BE 2-3  (rather 2)
 
