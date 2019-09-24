@@ -24,6 +24,7 @@ znikam ja
 
 ---
 
+
 licząc na barkach zmierzchu każdy DZIEŃ
 znika ŚWIAT a z nim wszelkie wady, znikam JA
 siłę DAJ bym mógł TRWAĆ, stresu ci dawać nie będę to nie JA (tak) [ alt: to  nie ja  nawet  gdy  sam  setne  scenariusze drę ]
