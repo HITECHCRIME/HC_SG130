@@ -112,6 +112,7 @@ znika świat a z nim wszelkie wady, znikam ja
 siłę daj bym mógł trwać nawet gdy nie będę taki sam
 
 -------
+
 OLDER VERSIONS_
 
 LICZAC NA BARKACH ZMIERZCHU KAŻDY DZIEŃ
