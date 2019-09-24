@@ -26,12 +26,12 @@ znikam ja
 
 licząc na barkach zmierzchu każdy DZIEŃ
 znika ŚWIAT a z nim wszelkie wady, znikam JA
-siłę DAJ bym mógł TRWAĆ, stresu (ci) dawać (ci) nie będę to nie ja
+siłę DAJ bym mógł TRWAĆ, stresu (ci) dawać (ci) nie będę to nie JA (tak)
 nawet gdy SAM setny RAZ pocięte scenariusze DRĘ (typu)
 je*ać ludzi, je*ać NAS i ten świat
 gdzie tu sens po zmieeerzchu w każdy DZIEŃ
-znika TRAKT a z nim wszelkie ślady, znikam ja
-siłę daj bym mógł trwać nawet gdy nie będę (już) taki sam
+znika TRAKT a z nim wszelkie ślady, znikam JA
+siłę DAJ bym mógł TRWAĆ nawet gdy nie będę (już) taki SAM
 
 ---
 
