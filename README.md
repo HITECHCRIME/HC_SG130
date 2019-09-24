@@ -23,7 +23,6 @@ znika świat
 a z nim wszelkie wady
 znikam ja
 
-
 ---
 
 licząc na barkach zmierzchu każdy dzień
