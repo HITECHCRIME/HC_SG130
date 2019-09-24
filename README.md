@@ -26,7 +26,7 @@ znikam ja
 
 licząc na barkach zmierzchu każdy DZIEŃ
 znika ŚWIAT a z nim wszelkie wady, znikam JA
-siłę DAJ bym mógł TRWAĆ, stresu ci dawać nie będę to nie JA (tak) / to  nie ja  nawet  gdy  sam  setne  scenariusze drę
+siłę DAJ bym mógł TRWAĆ, stresu ci dawać nie będę to nie JA (tak) [ alt: to  nie ja  nawet  gdy  sam  setne  scenariusze drę ]
 nawet gdy SAM setny RAZ pocięte scenariusze DRĘ (typu)
 je*ać ludzi, je*ać NAS i ten świat
 gdzie tu sens po zmieeerzchu w każdy DZIEŃ
