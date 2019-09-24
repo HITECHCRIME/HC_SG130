@@ -16,7 +16,6 @@ https://www.youtube.com/watch?v=cEgyWS6hcu4
 ## Lyrics
 
 ```
-
 ...(na barkach zmierzchu)
 w każdy dzień
 znika świat 
@@ -34,9 +33,7 @@ gdzie tu sens, po zmierzchu w każdy dzień
 znika trakt a z nim wszelkie ślady, znikam ja
 siłę daj bym mógł trwać nawet gdy nie będę (już) taki sam
 
-
 ---
-
 
 wpływ na mnogie brednie w ład
 oczy w co raz wyższe piedestały
