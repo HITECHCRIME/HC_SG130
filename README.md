@@ -41,7 +41,7 @@ tak skłonnym ludzkie dać
 ty mi powiedz, 
 że w teorię zejdziesz skromnie,
 zbyt pochopnie oczy do poziomu 
-wniosek niestety zbyt pokorny
+wniosek niestety zbyt pokorny aye
 będą zawsze brać oddolnie
 zwrot na wieki oddalony
 szukaj swoich wcieleń 
