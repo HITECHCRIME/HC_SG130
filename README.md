@@ -50,6 +50,10 @@ szukaj swoich wcieleń
 by dać im w ukojeniu tlenu
 gustowny oddech i parę przyszłych wspomnień
 
+jebać  wasze  piedestały
+wolę stać stabilniej
+
+
 ---
 
 licząc na barkach zmierzchu każdy dzień
