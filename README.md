@@ -25,10 +25,10 @@ znikam ja
 
 ---
 
-licząc na barkach zmierzchu każdy dzień
-znika świat a z nim wszelkie wady, znikam ja
-siłę daj bym mógł trwać, stresu (ci) dawać (ci) nie będę to nie ja
-nawet gdy sam setny raz pocięte scenariusze drę (typu)
+licząc na barkach zmierzchu każdy DZIEŃ
+znika ŚWIAT a z nim wszelkie wady, znikam JA
+siłę DAJ bym mógł TRWAĆ, stresu (ci) dawać (ci) nie będę to nie ja
+nawet gdy SAM setny RAZ pocięte scenariusze DRĘ (typu)
 je*ać ludzi, je*ać nas i ten świat
 gdzie tu sens, po zmierzchu w każdy dzień
 znika trakt a z nim wszelkie ślady, znikam ja
