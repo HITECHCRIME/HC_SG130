@@ -16,7 +16,8 @@ https://www.youtube.com/watch?v=cEgyWS6hcu4
 ## Lyrics
 
 ```
-...na barkach zmierzchu
+
+...(na barkach zmierzchu)
 w każdy dzień
 znika świat 
 a z nim wszelkie wady
