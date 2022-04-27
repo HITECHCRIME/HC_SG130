@@ -33,7 +33,7 @@ siłę daj bym mógł trwać, nawet gdy nie będę to już ja
 gdzie tu sens gdy po zmierzchu w każdy dzień
 znika trakt a z nim wszelkie ślady, znika nawet brak
 nadal prę, w oddal bięgnę mając mierny wpływ na mnogie brednie w ład
-szukaj swoich wcieleń by w ukojeniu dać im tlenu 
+szukaj swoich wcieleń w ukojeniu daj im tlenu 
 ten gustowny oddech i parę przyszłych wspomnień
 oczy w co raz wyższe piedestały, tak być skłonnym ludzkie dać
 ty mi powiedz, że w teorię zejdziesz skromnie,
