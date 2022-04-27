@@ -26,12 +26,23 @@ siłę daj bym mógł trwać, nawet gadać nie będę to nie ja
 nawet gdy sam setny raz pocięte scenariusze drę
 je*ać ludzi, je*ać nas i ten świat
 
-licząc na barkach zmierzchu każdy dzień
+znów na barkach zmierzchu każdy dzień
 znika świat a z nim wszelkie wady, znikam ja
 siłę daj bym mógł trwać, nawet gdy nie będę to już ja
 
 gdzie tu sens gdy po zmierzchu w każdy dzień
-znika trakt a z nim wszelkie ślady, znika brak
+znika trakt a z nim wszelkie ślady, znika nawet brak
+nadal prę, w oddal bięgnę mając mierny wpływ na mnogie brednie w ład
+oczy w co raz wyższe piedestały
+tak skłonnym ludzkie dać
+ty mi powiedz, że w teorię zejdziesz skromnie,
+zbyt pochopnie oczy do poziomu 
+wniosek niestety zbyt pokorny aye
+będą zawsze brać oddolnie
+zwrot na wieki oddalony
+szukaj swoich wcieleń 
+by dać im w ukojeniu tlenu
+gustowny oddech i parę przyszłych wspomnień
 
 
 ...(na barkach zmierzchu)
@@ -63,18 +74,7 @@ siłę DAJ bym mógł TRWAĆ nawet gdy nie będę (nope - już) taki SAM
 
 ---
 
-wpływ na mnogie brednie w ład
-oczy w co raz wyższe piedestały
-tak skłonnym ludzkie dać
-ty mi powiedz, 
-że w teorię zejdziesz skromnie,
-zbyt pochopnie oczy do poziomu 
-wniosek niestety zbyt pokorny aye
-będą zawsze brać oddolnie
-zwrot na wieki oddalony
-szukaj swoich wcieleń 
-by dać im w ukojeniu tlenu
-gustowny oddech i parę przyszłych wspomnień
+
 
 
 jebać  wasze  piedestały
