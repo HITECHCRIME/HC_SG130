@@ -33,16 +33,17 @@ siłę daj bym mógł trwać, nawet gdy nie będę to już ja
 gdzie tu sens gdy po zmierzchu w każdy dzień
 znika trakt a z nim wszelkie ślady, znika nawet brak
 nadal prę, w oddal bięgnę mając mierny wpływ na mnogie brednie w ład
-oczy w co raz wyższe piedestały
-tak skłonnym ludzkie dać
+szukaj swoich wcieleń by w ukojeniu dać im tlenu 
+ten gustowny oddech i parę przyszłych wspomnień
+oczy w co raz wyższe piedestały, tak być skłonnym ludzkie dać
 ty mi powiedz, że w teorię zejdziesz skromnie,
-zbyt pochopnie oczy do poziomu 
-wniosek niestety zbyt pokorny aye
+zbyt pochopnie oczy do poziomu wniosek mój niestety zbyt pokorny aye
+
+
 będą zawsze brać oddolnie
 zwrot na wieki oddalony
-szukaj swoich wcieleń 
-by dać im w ukojeniu tlenu
-gustowny oddech i parę przyszłych wspomnień
+
+
 
 
 ...(na barkach zmierzchu)
