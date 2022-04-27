@@ -15,6 +15,22 @@ https://www.youtube.com/watch?v=cEgyWS6hcu4
 
 ## Lyrics
 
+...w każdy dzień znika świat 
+a z nim wszelkie wady znikam ja...
+
+licząc na barkach zmierzchu każdy dzień
+znika świat a z nim wszelkie wady, znikam ja
+siłę daj bym mógł trwać, nawet gadać nie będę to nie ja
+nawet gdy sam setny raz pocięte scenariusze drę
+je*ać ludzi, je*ać nas i ten świat
+
+licząc na barkach zmierzchu każdy dzień
+znika świat a z nim wszelkie wady, znikam ja
+siłę daj bym mógł trwać, nawet gdy nie będę to już ja
+
+gdzie tu sens gdy po zmierzchu w każdy dzień
+znika trakt a z nim wszelkie ślady, znika brak
+
 ```
 ...(na barkach zmierzchu)
 w każdy dzień
