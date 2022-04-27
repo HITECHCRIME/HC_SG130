@@ -37,7 +37,7 @@ szukaj swoich wcieleń w ukojeniu daj im tlenu
 ten gustowny oddech i parę przyszłych wspomnień
 oczy w co raz wyższe piedestały, tak być skłonnym ludzkie dać
 ty mi powiedz, że w teorię zejdziesz skromnie,
-zbyt pochopnie oczy do poziomu wniosek mój niestety zbyt pokorny aye
+zbyt pokornie oczy do poziomu wniosek mój niestety zbyt pochopny aye
 
 
 będą zawsze brać oddolnie
